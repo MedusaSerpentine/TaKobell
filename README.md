@@ -1,2 +1,2 @@
 # Takobell
-we sell authentic mexicans <3
+we sell authentic mexican takos <3
